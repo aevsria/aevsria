@@ -18,7 +18,11 @@
 
 ꒰ ⌢⌢ multifandom !!
 
-꒰ very shy person (isfj) . introverted + moon personality
+꒰ very shy person (isfj) . introverted + moon personality , i still like to make new friends tho !!
+
+꒰ semi-verbal to randoms unless i can talk to you easily and we have same interests
+
+꒰ i loovovove all my friends sosoosos super much /p
 
 ![image alt](https://github.com/aevsria/aevsria/blob/main/me.jpg?raw=true)
 
