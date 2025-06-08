@@ -1,20 +1,25 @@
-hihi !! - call me kate but feel free to give nicknames !! ♡
+꒰ hihi !! - call me kate but feel free to give nicknames !! ♡
 
-                                             ☆ sign my ata or strawpage plsplspls 
+                                            ꒰ ☆ sign my ata or strawpage plsplspls ꒱
 
-i LOVE seals and otters so much , theyre my favorite animals ever
+꒰ i LOVE seals and otters so much , theyre my favorite animals ever
 
-c+h w me anytime !! just iwc when im w friends / talking to someone
+꒰ c+h w me anytime !! just iwc when im w friends / talking to someone
 
-eternal sugar n sprout irl . !! <3
+꒰ eternal sugar n sprout irl . !! <3
 
-strawpage has more info ^..^ , feel free to look !
+꒰ strawpage has more info ^..^ , feel free to look !
 
- ⌢⌢ multifandom !!
+꒰ usually afk or offtab so please w2i even if its not said in my name
 
- very shy person (isfj) . introverted + moon personality
+꒰ sorry if i randomly leave w/out saying anything </3 . it was probably either urgent or i went to one of my friends
 
-WAAAHHHHH LOOK AT THESE SILLIES
+꒰ PLEASE dnc my skins or take inspo w/out asking , making skins on pony town is hard
+
+꒰ ⌢⌢ multifandom !!
+
+꒰ very shy person (isfj) . introverted + moon personality
+
 ![image alt](https://github.com/aevsria/aevsria/blob/main/me.jpg?raw=true)
 
 <!--
