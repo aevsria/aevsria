@@ -1,6 +1,6 @@
 hihi !! - call me kate but feel free to give nicknames !! ♡
 
-                                       ☆ sign my ata or strawpage plsplspls 
+                                                             ☆ sign my ata or strawpage plsplspls 
 
 i LOVE seals and otters so much , theyre my favorite animals ever
 
@@ -11,6 +11,8 @@ eternal sugar n sprout irl . !! <3
 strawpage has more info ^..^ , feel free to look !
 
  ⌢⌢ multifandom !!
+
+ very shy person (isfj) . introverted + moon personality
 
 WAAAHHHHH LOOK AT THESE SILLIES
 ![image alt](https://github.com/aevsria/aevsria/blob/main/me.jpg?raw=true)
