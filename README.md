@@ -1,4 +1,4 @@
-![image alt](https://github.com/aevsria/aevsria/blob/main/%231%20seal%20lover.jpg?raw=true)
+
 
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
