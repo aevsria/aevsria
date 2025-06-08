@@ -24,7 +24,7 @@
 
 ꒰ i loovovove all my friends sosoosos super much /p
 
-- thats it for now !! thank you for reading ^_^ ( if you did )
+- thats it for now !! thank you sososooso super duper much for reading ^_^ ( if you did )
 
 ![image alt](https://github.com/aevsria/aevsria/blob/main/me.jpg?raw=true)
 
