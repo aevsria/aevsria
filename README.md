@@ -1,4 +1,10 @@
+hihi !! - call me kate but feel free to give nicknames !!
 
+i LOVE seals and otters , theyre my favorite animals
+
+i really like sprout (dw) and eternal sugar (crk)
+
+![image alt](https://github.com/aevsria/aevsria/blob/main/me.jpg?raw=true)
 
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
