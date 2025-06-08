@@ -1,6 +1,6 @@
 hihi !! - call me kate but feel free to give nicknames !! ♡
 
-☆ sign my ata or strawpage plsplspls 
+                          ☆ sign my ata or strawpage plsplspls 
 
 i LOVE seals and otters so much , theyre my favorite animals ever
 
@@ -10,16 +10,7 @@ eternal sugar n sprout irl . !! <3
 
 strawpage has more info ^..^ , feel free to look !
 
-multifandom :
-- cookie run games
-- epic the musical
-- roblox
-- forsaken
-- dandys world
-- alien stage
-- percy jackson
-- genshin impact
-- my little pony
+ ⌢⌢ multifandom !!
 
 WAAAHHHHH LOOK AT THESE SILLIES
 ![image alt](https://github.com/aevsria/aevsria/blob/main/me.jpg?raw=true)
