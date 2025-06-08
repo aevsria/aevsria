@@ -14,7 +14,7 @@
 
 ꒰ sorry if i randomly leave w/out saying anything </3 . it was probably either urgent or i went to one of my friends
 
-꒰ PLEASE dnc my skins or take inspo w/out asking , making skins on pony town is hard
+꒰ PLEASE dnc my skins or take inspo w/out asking
 
 ꒰ ⌢⌢ multifandom !!
 
