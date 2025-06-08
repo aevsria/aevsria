@@ -2,7 +2,7 @@
 
                                             ꒰ ☆ sign my ata , strawpage , or bothplsplspls ꒱
 
-꒰ i LOVE seals and otters so much , theyre my favorite animals ever
+꒰ i LOVE seals and otters so much
 
 ꒰ c+h w me anytime !! just iwc when im w friends / talking to someone
 
@@ -18,11 +18,13 @@
 
 ꒰ ⌢⌢ multifandom !!
 
-꒰ very shy person (isfj) . introverted + moon personality , i still like to make new friends tho !!
+꒰ very shy person ( isfj ) . introverted + moon personality , i still like to make new friends tho !!
 
 ꒰ semi-verbal to randoms unless i can talk to you easily and we have same interests
 
 ꒰ i loovovove all my friends sosoosos super much /p
+
+- thats it for now !! thank you for reading ^_^ ( if you did )
 
 ![image alt](https://github.com/aevsria/aevsria/blob/main/me.jpg?raw=true)
 
