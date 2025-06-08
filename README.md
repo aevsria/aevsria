@@ -1,10 +1,14 @@
-hihi !! - call me kate but feel free to give nicknames !!
+hihi !! - call me kate but feel free to give nicknames !! ♡
 
-i LOVE seals and otters , theyre my favorite animals
+☆ sign my ata or strawpage plsplspls 
+
+i LOVE seals and otters so much , theyre my favorite animals ever
 
 c+h w me anytime !! just iwc when im w friends / talking to someone
 
 eternal sugar n sprout irl . !! <3
+
+strawpage has more info ^..^ , feel free to look !
 
 multifandom :
 - cookie run games
