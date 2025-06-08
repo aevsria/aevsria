@@ -1,6 +1,6 @@
 ꒰ hihi !! - call me kate but feel free to give nicknames !! ♡
 
-                                            ꒰ ☆ sign my ata or strawpage plsplspls ꒱
+                                            ꒰ ☆ sign my ata , strawpage , or bothplsplspls ꒱
 
 ꒰ i LOVE seals and otters so much , theyre my favorite animals ever
 
