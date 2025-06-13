@@ -28,7 +28,7 @@
 
 - thats it for now !! thank you sososooso super duper much for reading ^_^ ( if you did )
 
-![image alt]([https://github.com/aevsria/aevsria/blob/main/me.jpg?raw=true](https://github.com/aevsria/aevsria/blob/main/esc1.jpg?raw=true))
+![image alt](![image](https://github.com/user-attachments/assets/a1d6f08b-63e2-49c6-afb0-1b294980ef72)
 
 MARRY ME SPROUT- who said that...I wonder um it wasnt me!! trust
 
