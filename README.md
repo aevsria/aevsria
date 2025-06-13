@@ -30,6 +30,8 @@
 
 ![image alt](https://github.com/aevsria/aevsria/blob/main/me.jpg?raw=true)
 
+MARRY ME SPROUT- who said that...I wonder um it wasnt me!! trust
+
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
