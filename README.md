@@ -8,7 +8,7 @@
 
 ꒰ c+h w me anytime !! just iwc when im w friends / talking to someone
 
-꒰ eternal sugar n sprout irl . !! <3
+꒰ eternal sugar (crk) , sprout (dw) n penelope (epic the musical) irl . !! <3
 
 ꒰ strawpage has more info ^..^ , feel free to look !
 
