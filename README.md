@@ -28,7 +28,7 @@
 
 - thats it for now !! thank you sososooso super duper much for reading ^_^ ( if you did )
 
-MARRY ME SPROUT- who said that...I wonder um it wasnt me!! trust
+sprout is so me yeah ok bye
 
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
