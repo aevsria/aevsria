@@ -10,7 +10,7 @@
 
 ꒰ eternal sugar (crk) , sprout (dw) n penelope (epic the musical) irl . !! <3
 
-꒰ strawpage has more info ^..^ , feel free to look !
+꒰ strawpages have more info ^..^ , feel free to look !
 
 ꒰ usually afk or offtab so please w2i even if its not said in my name
 
