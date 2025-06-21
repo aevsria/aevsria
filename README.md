@@ -1,6 +1,6 @@
                                             ꒰ ☆ sign my ata , strawpage , or both plsplspls ꒱
                                             
-  ![image alt](https://github.com/aevsria/aevsria/blob/main/sprout%20banner.jpg?raw=true)
+  ![image alt](![image](https://github.com/user-attachments/assets/f8e28496-a465-41c7-9718-9ce7badd350f)
 
 ꒰ hihi !! - call me kate but feel free to give nicknames !! ♡
 
