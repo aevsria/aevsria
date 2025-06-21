@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/1290bdf7-fba2-4d45-b8b3-d9bdf51f645e)
 
-                                            ꒰ ☆ sign my ata , strawpage , or both plsplspls ꒱
+                              ꒰ ☆ sign my ata , strawpage , or both plsplspls ꒱
                                             
 ![image](https://github.com/user-attachments/assets/f8e28496-a465-41c7-9718-9ce7badd350f)
 
