@@ -32,7 +32,7 @@ current profile by ;; LovingSeaAngel333 // spoon on pin !!
 
 - thats it for now !! thank you sososooso super duper much for reading ^_^ ( if you did )
 
-sprout is so me yeah ok bye
+bye bye heh
 
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
