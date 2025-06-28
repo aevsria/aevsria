@@ -4,7 +4,7 @@
                                             
 ![image](https://github.com/user-attachments/assets/f8e28496-a465-41c7-9718-9ce7badd350f)
 
-current profile by ;; LovingSeaAngel333 // spoon on pin !!
+profile cr : ME YAY!
 
 ꒰ hihi !! - call me kate but feel free to give nicknames !! ♡
 
