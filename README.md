@@ -1,5 +1,3 @@
-![image](https://github.com/user-attachments/assets/bf50b4e5-5037-4e5d-985a-22ae97d1eeb3)
-
 ![image](https://github.com/user-attachments/assets/f578dc90-0ffc-4ef2-9923-d26ccff28bb2)
 
 
@@ -29,6 +27,8 @@ profile cr : genshin impact ^_^
 ꒰ PLEASE dnc my skins or take inspo w/out asking
 
 ꒰ ⌢⌢ multifandom !!
+
+![image](https://github.com/user-attachments/assets/bf50b4e5-5037-4e5d-985a-22ae97d1eeb3)
 
 ꒰ very shy person ( isfj ) . introverted + moon personality , i still like to make new friends tho !!
 
