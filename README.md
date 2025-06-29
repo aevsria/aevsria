@@ -2,13 +2,11 @@
 
 
                               ꒰ ☆ sign my ata , strawpage , or both plsplspls ꒱
-                                            
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=ff69b4)
+                                      
+![](https://komarev.com/ghpvc/?username=your-github-username&color=blue)
 
 did i glitch the profile views ... i know dang well i dont have that many ,,,,,
-
-![](https://komarev.com/ghpvc/?username=your-github-username&color=blue)
 
 profile cr : genshin impact ^_^
 
