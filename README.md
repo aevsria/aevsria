@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/f578dc90-0ffc-4ef2-9923-d26ccff28bb2)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](https://github.com/user-attachments/assets/f578dc90-0ffc-4ef2-9923-d26ccff28bb2)
 
 
                               ꒰ ☆ sign my ata , strawpage , or both plsplspls ꒱
@@ -6,7 +6,7 @@
                                       
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=your-github-username&color=blue)
 
-did i glitch the profile views ... i know dang well i dont have that many ,,,,,
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀did i glitch the profile views ... i know dang well i dont have that many ,,,,,
 
 profile cr : genshin impact ^_^
 
