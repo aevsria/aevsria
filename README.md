@@ -4,7 +4,7 @@
                                             
 ![image](https://github.com/user-attachments/assets/f8e28496-a465-41c7-9718-9ce7badd350f)
 
-![](https://komarev.com/ghpvc/?username=aevsria)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=ff69b4-username&label=cool+people)
 
 profile cr : rafa_elaelaela on x / twt
 
