@@ -38,8 +38,7 @@ profile cr : rafa_elaelaela on x / twt
 
 bye bye heh
 
-![Image](https://github.com/user-attachments/assets/d6343282-3295-4c8d-992e-ac00e9e56025)
-
+[https://github.com/user-attachments/assets/10156dda-97ed-4a15-851e-6e0adbd02d1b](https://github.com/user-attachments/assets/684a0500-f9e8-4728-8c27-302dc223c5b5)
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
