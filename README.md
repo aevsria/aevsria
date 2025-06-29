@@ -1,5 +1,3 @@
-![image](https://github.com/user-attachments/assets/1290bdf7-fba2-4d45-b8b3-d9bdf51f645e)
-
 ![image](https://github.com/user-attachments/assets/bf50b4e5-5037-4e5d-985a-22ae97d1eeb3)
 
                               ꒰ ☆ sign my ata , strawpage , or both plsplspls ꒱
