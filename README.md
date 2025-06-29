@@ -4,7 +4,7 @@
                                             
 ![image](https://github.com/user-attachments/assets/f8e28496-a465-41c7-9718-9ce7badd350f)
 
-why does it say i have that many profile views HELLO??? ,,, did i glitch it...
+did i glitch the profile views ... i know dang well i dont have that many ,,,,,
 
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=ff69b4)
 
