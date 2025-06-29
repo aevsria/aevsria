@@ -36,13 +36,13 @@ profile cr : rafa_elaelaela on x / twt
 
 - thats it for now !! thank you sososooso super duper much for reading ^_^ ( if you did )
 
-bye bye heh
-
-made by dearnavia on tt !!
+vid cr : dearnavia on tt !!
 
 ANGI YOURE THE KACHINA TO MY MUALANI <3 ( its okay if you dont play genshin heh )
 
 [https://github.com/user-attachments/assets/10156dda-97ed-4a15-851e-6e0adbd02d1b](https://github.com/user-attachments/assets/684a0500-f9e8-4728-8c27-302dc223c5b5)
+
+bye bye heh
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
