@@ -43,6 +43,8 @@ ANGI YOURE THE KACHINA TO MY MUALANI <3 ( its okay if you dont play genshin heh 
 
 https://github.com/user-attachments/assets/2375ab75-30ab-42ad-939a-0ef9c7c41925
 
+errrr the quality kills me but its okay i guess
+
 bye bye heh
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
