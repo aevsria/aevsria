@@ -8,6 +8,8 @@
 
 did i glitch the profile views ... i know dang well i dont have that many ,,,,,
 
+![](https://komarev.com/ghpvc/?username=your-github-username&color=blue)
+
 profile cr : genshin impact ^_^
 
 ꒰ hihi !! - call me kate but feel free to give nicknames !! ♡
