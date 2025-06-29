@@ -7,7 +7,7 @@
 
 did i glitch the profile views ... i know dang well i dont have that many ,,,,,
 
-profile cr : rafa_elaelaela on x / twt
+profile cr : genshin impact ^_^
 
 ꒰ hihi !! - call me kate but feel free to give nicknames !! ♡
 
