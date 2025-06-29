@@ -3,9 +3,9 @@
                               ꒰ ☆ sign my ata , strawpage , or both plsplspls ꒱
                                             
 
-did i glitch the profile views ... i know dang well i dont have that many ,,,,,
-
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=ff69b4)
+
+did i glitch the profile views ... i know dang well i dont have that many ,,,,,
 
 profile cr : rafa_elaelaela on x / twt
 
