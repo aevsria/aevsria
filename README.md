@@ -39,7 +39,7 @@ profile cr : genshin impact ^_^
 
 vid cr : dearnavia on tt !!
 
-ANGI YOURE THE KACHINA TO MY MUALANI <3 ( its okay if you dont play genshin heh )
+ANGI YOURE THE KACHINA TO MY MUALANI <3
 
 https://github.com/user-attachments/assets/2375ab75-30ab-42ad-939a-0ef9c7c41925
 
