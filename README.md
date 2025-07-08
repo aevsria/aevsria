@@ -1,6 +1,6 @@
                                           ꒰ ☆ sign my ata , strawpage , or both plsplspls ꒱
 
-[Link Text](https://sharkysurfer.straw.page)
+[𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://aevsria.atabook.org/?page=1) [𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://sharkysurfer.straw.page/)
 
                                       
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=your-github-username&color=blue)
@@ -8,35 +8,6 @@
 
 ![image](https://github.com/user-attachments/assets/f578dc90-0ffc-4ef2-9923-d26ccff28bb2)
 
-profile cr : genshin impact ^_^
-
-꒰ hihi !! - call me kate but feel free to give nicknames !! ♡
-
-꒰ i LOVE seals and otters so much
-
-꒰ c+h w me anytime !! just iwc when im w friends / talking to someone
-
-꒰ eternal sugar (crk) , sprout (dw) n penelope (epic the musical) irl . !! <3
-
-꒰ strawpages have more info ^..^ , feel free to look !
-
-꒰ usually afk or offtab so please w2i even if its not said in my name
-
-꒰ sorry if i randomly leave w/out saying anything </3 . it was probably either urgent or i went to one of my friends
-
-꒰ PLEASE dnc my skins or take inspo w/out asking
-
-꒰ ⌢⌢ multifandom !!
-
-![image](https://github.com/user-attachments/assets/bf50b4e5-5037-4e5d-985a-22ae97d1eeb3)
-
-꒰ very shy person ( isfj ) . introverted + moon personality , i still like to make new friends tho !!
-
-꒰ semi-verbal to randoms unless i can talk to you easily and we have same interests
-
-꒰ i loovovove all my friends sosoosos super much /p
-
-- thats it for now !! thank you sososooso super duper much for reading ^_^ ( if you did )
 
 vid cr : dearnavia on tt !!
 
@@ -45,8 +16,6 @@ ANGI YOURE THE KACHINA TO MY MUALANI <3
 https://github.com/user-attachments/assets/2375ab75-30ab-42ad-939a-0ef9c7c41925
 
 errrr the quality kills me but its okay i guess
-
-bye bye heh
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
