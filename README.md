@@ -9,6 +9,7 @@
 
 　　　　　　　　　　　　　　　　　　　　　　‿‿ { [𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://sharkysurfer.straw.page/) --- [𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://aevsria.atabook.org/?page=1) } !!
 
+
 vid cr : dearnavia on tt ^_^
 
 https://github.com/user-attachments/assets/2375ab75-30ab-42ad-939a-0ef9c7c41925
