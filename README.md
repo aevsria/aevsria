@@ -16,9 +16,7 @@
 
 https://github.com/user-attachments/assets/2375ab75-30ab-42ad-939a-0ef9c7c41925
 
-vid cr : dearnavia on tt !!
-
-ANGI YOURE THE KACHINA TO MY MUALANI <3
+vid cr : dearnavia on tt ^_^
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
