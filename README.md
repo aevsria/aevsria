@@ -3,16 +3,14 @@
                                   ꒰ ☆ sign ata or strawpage for free cake from eunoia 100% real ꒱
 
 　　　　　　　　　　　　　　　　　　　　　　‿‿ { [𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://sharkysurfer.straw.page/) --- [𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://aevsria.atabook.org/?page=1) } !!
+
                                       
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=your-github-username&label=angels&color=lightgrey)
 
 
 　　　　　　　　　　![image](https://github.com/aevsria/aevsria/blob/main/columbina%20banner2.jpg?raw=true)
+
           
-
-　　　　　　　　　　　　　　　　　　　　　　‿‿ { [𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://sharkysurfer.straw.page/) --- [𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://aevsria.atabook.org/?page=1) } !!
-
-
 vid cr : dearnavia on tt ^_^
 
 angi is the kachina to my mualani !! <3
