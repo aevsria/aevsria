@@ -4,7 +4,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=your-github-username&label=angels&color=lightgrey)
 
 
-　　　　　　　　　　![image](<img width="1200" height="640" alt="image" src="https://github.com/user-attachments/assets/8647e81f-22e0-43a8-a357-f4472cb90dad" />)
+　　　　　　　　　　![image](https://github.com/aevsria/aevsria/blob/main/columbina%20banner2.jpg?raw=true)
           
 
 　　　　　　　　　　　　　　　　　　　　　　‿‿ { [𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://sharkysurfer.straw.page/) --- [𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://aevsria.atabook.org/?page=1) } !!
