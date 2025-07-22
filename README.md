@@ -12,7 +12,7 @@
           
 vid cr : dearnavia on tt ^_^
 
-angi is the kachina to my mualani !! <3
+angi ,, youre the kachina to my mualani !! <3
 
 https://github.com/user-attachments/assets/2375ab75-30ab-42ad-939a-0ef9c7c41925
 
