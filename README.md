@@ -3,7 +3,7 @@
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=your-github-username&label=hugs!&color=blue)
 
-　　　　　　　　　　　strawpage is made for desktop !! theres one made for mobile linked in there though ^_^
+　　　　　　　　　　　　strawpage is made for desktop !! theres one made for mobile linked in there though ^_^
 
               
 　　　　　　　　　　　　　　　　　　　　　　‿‿ { [𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://prettyyinpink.straw.page/) --- [𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://aevsria.atabook.org/?page=1) } --- ꕮ
