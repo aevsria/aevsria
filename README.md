@@ -12,6 +12,8 @@
 
                       
 　　　　　　　　　　![image](https://github.com/aevsria/aevsria/blob/main/rainbow%20!11!!.jpg?raw=true)
+
+MORE COOL PEOPLE THAT I CANT ADD ON MY COMPANY LIST EVEN THOUGH IT WONT LINK THEM!!!! (github users) @ungivingly , @Shr1mpS0ups , @Cranberriesssss , @toastyinvader , @bdf647 , @Morgio , @Foreverless-Nightmares , @bubblefoam
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
