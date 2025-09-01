@@ -10,7 +10,7 @@
                             
                       
 　　　　　　　　　　![image](https://github.com/aevsria/aevsria/blob/main/i%20love%20her.jpg?raw=true)
-## "the human counterpart i left behind, i named furina."
+## "ᵗʰᵉ ʰᵘᵐᵃⁿ ᶜᵒᵘⁿᵗᵉʳᵖᵃʳᵗ ⁱ ˡᵉᶠᵗ ᵇᵉʰⁱⁿᵈ, ⁱ ⁿᵃᵐᵉᵈ ᶠᵘʳⁱⁿᵃ."
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
