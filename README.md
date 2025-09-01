@@ -1,10 +1,13 @@
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=your-github-username&label=☆&color=blue)
+
 
               
 　　　　　　　　　　　　　　　　　　　　　　‿‿ { [𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://prettyyinpink.straw.page/) --- [𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://aevsria.atabook.org/?page=1) } --- ꕮ
 
 　　　　　　　　　　　　　　　　　　　　　　　☆ ┊ 𝘤𝘩𝘦𝘤𝘬 𝘰𝘶𝘵 𝘮𝘺 [𝘢𝘳𝘵 𝘨𝘢𝘭𝘭𝘦𝘳𝘺!](https://aevsria-artgallery.straw.page/) ✧
 
+
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=your-github-username&label=☆&color=blue)
+                            
                       
 　　　　　　　　　　![image](https://github.com/aevsria/aevsria/blob/main/i%20love%20her.jpg?raw=true)
 <!--
