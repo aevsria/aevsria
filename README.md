@@ -13,7 +13,7 @@
 
 ## "𝘵𝘩𝘦 𝘩𝘶𝘮𝘢𝘯 𝘤𝘰𝘶𝘯𝘵𝘦𝘳𝘱𝘢𝘳𝘵 𝘪 𝘭𝘦𝘧𝘵 𝘣𝘦𝘩𝘪𝘯𝘥, 𝘪 𝘯𝘢𝘮𝘦𝘥, 𝘧𝘶𝘳𝘪𝘯𝘢."
 
-![](https://github.com/aevsria/https://github.com/aevsria/aevsria/blob/main/furina!!!.gif?raw=true)
+![Image](https://github.com/user-attachments/assets/b30c6e5a-014b-41e8-b048-589950e4664a)
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
