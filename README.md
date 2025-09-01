@@ -15,8 +15,6 @@
 
 ![Image](https://github.com/user-attachments/assets/b30c6e5a-014b-41e8-b048-589950e4664a) 
 
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　![Image](https://github.com/aevsria/aevsria/blob/main/Untitled4_20250901183122.png?raw=true)
-
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
