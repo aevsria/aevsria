@@ -6,7 +6,7 @@
 　　　　　　　　　　　　　　　　　　　　　　　☆ ┊ 𝘤𝘩𝘦𝘤𝘬 𝘰𝘶𝘵 𝘮𝘺 [𝘢𝘳𝘵 𝘨𝘢𝘭𝘭𝘦𝘳𝘺!](https://aevsria-artgallery.straw.page/) ✧
 
                       
-　　　　　　　　　　![image](https://github.com/aevsria/aevsria/blob/main/rainbow%20!11!!.jpg?raw=true)
+　　　　　　　　　　![image](https://github.com/aevsria/aevsria/blob/main/i%20love%20her.jpg?raw=true)
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
