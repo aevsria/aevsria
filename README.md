@@ -13,7 +13,7 @@
                       
 　　　　　　　　　　![image](https://github.com/aevsria/aevsria/blob/main/rainbow%20!11!!.jpg?raw=true)
 
-MORE COOL PEOPLE THAT I CANT ADD ON MY COMPANY LIST EVEN THOUGH IT WONT LINK THEM,, JUST COPY AND PASTE THEIR USERS!!!! (github users) @rockett-raccoonn , @Shr1mpS0ups , @Cranberriesssss , @Foreverless-Nightmares , @toastyinvader , @bdf647 , @Morgio , @bubblefoam, @strawbabyjam , @gardenofashes , @riotinred , @mreowio
+MORE COOL PEOPLE THAT I CANT ADD ON MY COMPANY LIST EVEN THOUGH IT WONT LINK THEM,, JUST COPY AND PASTE THEIR USERS!!!! (github users) @rockett-raccoonn , @Shr1mpS0ups , @Cranberriesssss , @Foreverless-Nightmares , @toastyinvader , @bdf647 , @Morgio , @bubblefoam, @strawbabyjam , @gardenofashes , @riotinred , @final-curtain
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
