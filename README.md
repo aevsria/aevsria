@@ -15,8 +15,8 @@
 
 ![Image](https://github.com/user-attachments/assets/b30c6e5a-014b-41e8-b048-589950e4664a) 
 
-i suppose this would be, the ʝʊֆȶɨƈɛ that belongs to you ,,
-all that will eventually end in a magnificent and dramatic trial.
+　　i suppose this would be, the ʝʊֆȶɨƈɛ that belongs to you ,,
+　　all that will eventually end in a 𝙢𝙖𝙜𝙣𝙞𝙛𝙞𝙘𝙚𝙣𝙩 and 𝙙𝙧𝙖𝙢𝙖𝙩𝙞𝙘 trial . . .
 
 ### ㅤㅤㅤㅤ# . 𝐟𝐚𝐫𝐞𝐰𝐞𝐥𝐥, 𝙣𝙚𝙪𝙫𝙞𝙡𝙚𝙩𝙩𝙚. i hope youve enjoyed the part you played these 𝟓𝟎𝟎 years . ♡
 
