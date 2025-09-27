@@ -19,9 +19,9 @@
 
 　　　　　　　all that will eventually end in a 𝙢𝙖𝙜𝙣𝙞𝙛𝙞𝙘𝙚𝙣𝙩 and 𝙙𝙧𝙖𝙢𝙖𝙩𝙞𝙘 trial . . .
 
-### ㅤㅤㅤㅤ# . 𝐟𝐚𝐫𝐞𝐰𝐞𝐥𝐥, 𝙣𝙚𝙪𝙫𝙞𝙡𝙚𝙩𝙩𝙚. i hope youve enjoyed the part you played these 𝟓𝟎𝟎 years . ♡
-
 https://github.com/user-attachments/assets/af6ad3b4-83ef-4d24-b88d-7eb4e337ebd5
+
+### ㅤㅤㅤㅤ# . 𝐟𝐚𝐫𝐞𝐰𝐞𝐥𝐥, 𝙣𝙚𝙪𝙫𝙞𝙡𝙚𝙩𝙩𝙚. i hope youve enjoyed the part you played these 𝟓𝟎𝟎 years . ♡
 
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
