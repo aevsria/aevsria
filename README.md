@@ -15,7 +15,7 @@
 
 ![Image](https://github.com/user-attachments/assets/b30c6e5a-014b-41e8-b048-589950e4664a) 
 
-### farewell, neuvilette. i hope youve enjoyed the part you played these 500 years .
+### 𝐟𝐚𝐫𝐞𝐰𝐞𝐥𝐥, 𝙣𝙚𝙪𝙫𝙞𝙡𝙚𝙩𝙩𝙚. i hope youve enjoyed the part you played these 𝟓𝟎𝟎 years .
 
 https://github.com/user-attachments/assets/af6ad3b4-83ef-4d24-b88d-7eb4e337ebd5
 
