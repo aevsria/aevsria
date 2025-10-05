@@ -11,7 +11,7 @@
                       
 　　　　　　　　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](https://github.com/aevsria/aevsria/blob/main/Untitled19_20251003234405.jpeg?raw=true)
 
-### 　　　　　　　　　　　　　~ ☆ best viewed on laptop . !
+### 　　　　　　　　　　　　　　　　~ ☆ best viewed on laptop . !
 
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
