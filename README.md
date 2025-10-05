@@ -9,7 +9,7 @@
 　　　　　　　　　　　　　　　　　　　　　　　　　　⠀　![](https://komarev.com/ghpvc/?username=your-github-username&label=☆&color=FFB6C1)
                             
                       
-　　　　　　　　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](https://github.com/aevsria/aevsria/blob/main/Untitled19_20251003234405.jpeg?raw=true)
+　　　　　　　　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](https://github.com/aevsria/aevsria/blob/main/Untitled20_20251005164652.png?raw=true)
 
 ### 　　　　　　　　　　　　　　　　　~ ☆ best viewed on laptop . !
 
