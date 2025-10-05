@@ -4,7 +4,7 @@
 　　　　　　　　　　　　　　　　　　　　　　‿‿ { [𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://prettyyinpink.straw.page/) --- [𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://aevsria.atabook.org/?page=1) } --- ꕮ
 
 
-
+　　　　　　　　　　　　　　　　　　　　　　　　　　⠀　![](https://komarev.com/ghpvc/?username=your-github-username&label=☆&color=869fa7)
                             
                       
 　　　　　　　　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](https://github.com/aevsria/aevsria/blob/main/IMG_0440.png?raw=true)
