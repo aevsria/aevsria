@@ -8,7 +8,7 @@
                             
  
 　　　　　　　　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](https://github.com/aevsria/aevsria/blob/779e246f8e07b30352608255eed3d86f5707dedb/Unknown.jpeg)
-continuation of maddie's orientation :: wicked awesome. It's so sad! I'd want to hang up my hat too if my legacy was to be the bearer of poison apples. But there I go, putting the cup before the kettle. Let me start from the start.
+orientation continuation :: wicked awesome. It's so sad! I'd want to hang up my hat too if my legacy was to be the bearer of poison apples. But there I go, putting the cup before the kettle. Let me start from the start.
 
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
