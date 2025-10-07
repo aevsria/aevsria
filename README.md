@@ -7,7 +7,7 @@
 　　　　　　　　　　　　　　　　　　　　　　⠀⠀　　　　⠀　![](https://komarev.com/ghpvc/?username=aevsria&label=☆&color=FFBF00)
                             
  
-　　　　　　　　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](https://github.com/aevsria/aevsria/blob/8dcda4320de4ceb0a8dc9e35014b3a6421e67c0d/Untitled24_20251006200748.png)
+　　　　　　　　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](https://github.com/aevsria/aevsria/blob/2efd609c578b9ab053732eeb26db57c0cfd97b51/Untitled24_20251006201745.png)
 
 
 <!--
