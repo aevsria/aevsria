@@ -1,7 +1,7 @@
 ![image](https://github.com/aevsria/aevsria/blob/main/Untitled28_20251019014543.png?raw=true)
 
               
-　　　　　　　　　　　　　　　　　　　　　　‿‿ { [𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://prettyyinpink.straw.page/) --- [𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://aevsria.atabook.org/?page=1) } --- ꕮ
+　　　　　　　　　　　　　　　　　　　　　　[strawpage](https://prettyyinpink.straw.page/) [ata](https://aevsria.atabook.org/?page=1)
 
 
 　　　　　　　　　　　　　　　　　　　　　　⠀⠀　　　　⠀　![](https://komarev.com/ghpvc/?username=aevsria&label=☆&color=ff509a)
