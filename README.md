@@ -3,7 +3,7 @@
               
 　　　　　　　　　　　　　　　　　　　　　⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀[strawpage](https://prettyyinpink.straw.page/) 
 
-ㅤ⠀ㅤ⠀ㅤㅤ⠀ㅤ⠀ㅤㅤ⠀ㅤ⠀ㅤㅤ⠀ㅤ⠀ㅤㅤ⠀ㅤ⠀ㅤㅤ⠀ㅤ⠀ㅤ⠀ㅤ         [prns page](https://en.pronouns.page/@aevsria)
+ㅤ⠀ㅤ⠀ㅤㅤ⠀ㅤ⠀ㅤㅤ⠀ㅤ⠀ㅤㅤ⠀ㅤ⠀ㅤㅤ⠀ㅤ⠀ㅤㅤ⠀ㅤ⠀ㅤ⠀ㅤ        ⠀ [prns page](https://en.pronouns.page/@aevsria)
                       
 ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ[ata](https://aevsria.atabook.org/?page=1)
 
