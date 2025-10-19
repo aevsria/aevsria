@@ -5,10 +5,6 @@
 
 
 　　　　　　　　　　　　　　　　　　　　　　⠀⠀　　　　⠀　![](https://komarev.com/ghpvc/?username=aevsria&label=☆&color=ff509a)
-
-
-
-https://github.com/user-attachments/assets/cdabd5a4-c1f5-4ddd-94c5-df26464b5f5d
                         
 
 <!--
