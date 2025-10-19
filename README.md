@@ -5,6 +5,8 @@
                       
 ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀[ata](https://aevsria.atabook.org/?page=1)
 
+ㅤ⠀ㅤ⠀ㅤㅤ⠀ㅤ⠀ㅤㅤ⠀ㅤ⠀ㅤㅤ⠀ㅤ⠀ㅤㅤ⠀ㅤ⠀ㅤㅤ⠀ㅤ⠀ㅤ[pronouns page](https://en.pronouns.page/@aevsria)
+
 
 　　　　　　　　　　　　　　　　　　　　　　⠀⠀　　　　⠀　![](https://komarev.com/ghpvc/?username=aevsria&label=☆&color=ff509a)
                         
