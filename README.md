@@ -7,7 +7,7 @@
                       
 ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤㅤ[ata](https://aevsria.atabook.org/?page=1)
 
-　　　　　　　　　　　　　　　　　　　　　　⠀⠀　　　　⠀　ㅤ![](https://komarev.com/ghpvc/?username=aevsria&label=☆&color=ff509a)
+　　　　　　　　　　　　　　　　　　　　　　⠀⠀　　　　⠀　![](https://komarev.com/ghpvc/?username=aevsria&label=☆&color=ff509a)
                         
 
 <!--
