@@ -1,7 +1,7 @@
 ![image](https://github.com/aevsria/aevsria/blob/main/Untitled28_20251019014543.png?raw=true)
 
               
-　　　　　　　　　　　　　　　　　　　　　⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀[strawpage](https://prettyyinpink.straw.page/) 
+　　　　　　　　　　　　　　　　　　　　　⠀ㅤ⠀ㅤ⠀ㅤ⠀ㅤ⠀[strawpage](https://prettyyinpink.straw.page/) [prns page](https://en.pronouns.page/@aevsria)
 
 ㅤ⠀ㅤ⠀ㅤㅤ⠀ㅤ⠀ㅤㅤ⠀ㅤ⠀ㅤㅤ⠀ㅤ⠀ㅤㅤ⠀ㅤ⠀ㅤㅤ⠀ㅤ⠀ㅤ⠀ㅤ      ⠀ [prns page](https://en.pronouns.page/@aevsria)
                       
