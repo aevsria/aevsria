@@ -4,8 +4,6 @@
 　　　　　　　　　　　　　　　　　　　　　⠀ㅤ⠀ㅤㅤ[strawpage](https://prettyyinpink.straw.page/) , [prns page](https://en.pronouns.page/@aevsria) , [ata](https://aevsria.atabook.org/?page=1)
 
 　　　　　　　　　　　　　　　　　　　　　　⠀⠀　　　　⠀　![](https://komarev.com/ghpvc/?username=aevsria&label=☆&color=ff509a)
-
-fixing this...soon i think
                         
 
 <!--
