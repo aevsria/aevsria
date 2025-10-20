@@ -1,7 +1,7 @@
 ![image](https://github.com/aevsria/aevsria/blob/main/Untitled28_20251019014543.png?raw=true)
 
               
-　　　　　　　　　　　　　　　　　　　　　⠀ㅤ⠀ㅤㅤ[strawpage](https://prettyyinpink.straw.page/) , [prns page](https://en.pronouns.page/@aevsria) , [ata](https://aevsria.atabook.org/?page=1)
+![image](https://github.com/aevsria/aevsria/blob/main/Unknown.jpeg?raw=true)
 
 　　　　　　　　　　　　　　　　　　　　　　⠀⠀　　　　⠀　![](https://komarev.com/ghpvc/?username=aevsria&label=☆&color=6893a6)
                         
