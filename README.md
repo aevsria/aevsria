@@ -1,7 +1,6 @@
 　　　　　　　　　　　　　　　　　　　　　　⠀⠀　　　　⠀　![](https://komarev.com/ghpvc/?username=aevsria&label=☆&color=fe7abb)
  
- ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/d4fa75ff-516c-4f9d-a437-11f05a3a9c3b" />
-) 
+ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](https://github.com/aevsria/aevsria/blob/main/Unknown.jpeg?raw=true) 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strawpage](https://prettyyinpink.straw.page/) [prns](https://en.pronouns.page/@aevsria) [ata](https://aevsria.atabook.org/?page=1)
                         
