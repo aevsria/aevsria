@@ -20,8 +20,6 @@
 <p align="center">
   <img src="https://github.com/aevsria/aevsria/blob/main/IMG_0737.png?raw=true" />
 </p>
-
-### i stayed here and never made another friend because i was afraid another cutie mark would take them away too.
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
