@@ -5,7 +5,7 @@
 　　　　　　　　　　　　　　　　　　　　　　⠀⠀　　　　⠀　![](https://komarev.com/ghpvc/?username=aevsria&label=☆&color=7c3fa9)
 
 <p align="center">$\color{#9cead8}{kate}$ <br>
-<p align="center">$\color{#9cead8}{ֆɦɛ \space // \space ɦɛʀ}$ <br>
+<p align="center">$\color{#9cead8}{Sɦɛ \space // \space ɦɛʀ}$ <br>
  
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strawpage](https://prettyyinpink.straw.page/) [prns](https://en.pronouns.page/@aevsria) [ata](https://aevsria.atabook.org/?page=1)
