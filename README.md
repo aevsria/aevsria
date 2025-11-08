@@ -1,4 +1,6 @@
-<p align="center"> ![image](https://github.com/aevsria/aevsria/blob/main/IMG_0738.png?raw=true)
+<p align="center">
+  <img src="https://github.com/aevsria/aevsria/blob/main/IMG_0738.png?raw=true" />
+</p>
 
 　　　　　　　　　　　　　　　　　　　　　　⠀⠀　　　　⠀　![](https://komarev.com/ghpvc/?username=aevsria&label=☆&color=7c3fa9)
  
