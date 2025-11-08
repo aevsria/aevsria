@@ -12,10 +12,6 @@
 ⠀<p align="center">$\color{purple}{━ \space νιєωє∂ \space вєттєя \space ση \space ρc \space ━}$ <br>
 
 
-![Typing SVG](https://readme-typing-svg.demolab.com/?never+made+another+friend;because+i+was+too+afraid+another;cutie+mark+would+take+them+away+too.)
-
-
-
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=g0ajh2dlv0n03s8ei2qrox2vi&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=g0ajh2dlv0n03s8ei2qrox2vi&cover_image=true&theme=novatorem&show_offline=true&background_color=5c2f79&interchange=true&profanity=true&bar_color=9ae5d6&bar_color_cover=false">
