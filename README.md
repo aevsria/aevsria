@@ -8,7 +8,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strawpage](https://prettyyinpink.straw.page/) [prns](https://en.pronouns.page/@aevsria) [ata](https://aevsria.atabook.org/?page=1)
 
 <p align="center">
-  <img src="https://github.com/aevsria/aevsria/blob/main/IMG_0741.gif?raw=true" />
+  ⠀<img src="https://github.com/aevsria/aevsria/blob/main/IMG_0741.gif?raw=true" />
 </p>
 
 
