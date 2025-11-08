@@ -11,7 +11,7 @@
 
 ⠀<p align="center">$\color{purple}{━ \space νιєωє∂  \space вєттєя  \space ση  \space ρc  \space ━}$ <br>
 
-⠀<p align="center">$\color{#9cead8}{αʅʅ  \space ιɳϝσ  \space ση  \space ιɳ  \space ʅιɳƙʂ}$ <br>
+⠀<p align="center">$\color{#9cead8}{αℓℓ  \space ιηƒσ  \space ιη  \space ℓιηкѕ}$ <br>
 
 
 <p align="center">
