@@ -9,7 +9,7 @@
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="center">![image](https://github.com/aevsria/aevsria/blob/197cbc9f93d390fd3cb5e9dfc7f621958a70238d/IMG_0734.gif) 
 
-⠀<p align="center">$\color{purple}{━ \space νιєωє∂ \space вєттєя \space ση \space ρc \space ━}$ <br>
+⠀<p align="center">$\color{teal}{━ \space νιєωє∂ \space вєттєя \space ση \space ρc \space ━}$ <br>
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=g0ajh2dlv0n03s8ei2qrox2vi&redirect=true">
