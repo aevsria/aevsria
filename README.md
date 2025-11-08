@@ -10,8 +10,7 @@
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="center">![image](https://github.com/aevsria/aevsria/blob/197cbc9f93d390fd3cb5e9dfc7f621958a70238d/IMG_0734.gif) 
 
 ⠀<p align="center">$\color{purple}{━ \space νιєωє∂  \space вєттєя  \space ση  \space ρc  \space ━}$ <br>
-
-⠀<p align="center">$\color{#9cead8}{αℓℓ  \space ιηƒσ  \space ιη  \space ℓιηкѕ}$ <br>
+ <p align="center">$\color{#9cead8}{αℓℓ  \space ιηƒσ  \space ιη  \space ℓιηкѕ}$ <br>
 
 
 <p align="center">
