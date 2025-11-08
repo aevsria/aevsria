@@ -7,6 +7,8 @@
 
 ⠀<p align="center">νιєωє∂ вєттєя ση ρ¢
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=g0ajh2dlv0n03s8ei2qrox2vi&cover_image=true&theme=default&show_offline=true&background_color=70e1ca&interchange=false&profanity=false&bar_color=88409c)](https://github.com/kittinan/spotify-github-profile)
+
 
                         
 
