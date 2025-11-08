@@ -7,10 +7,6 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strawpage](https://prettyyinpink.straw.page/) [prns](https://en.pronouns.page/@aevsria) [ata](https://aevsria.atabook.org/?page=1)
 
-⠀<p align="center">
-  ⠀<img src="https://github.com/aevsria/aevsria/blob/main/IMG_0741.gif?raw=true" />
-⠀</p>
-
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="center">![image](https://github.com/aevsria/aevsria/blob/197cbc9f93d390fd3cb5e9dfc7f621958a70238d/IMG_0734.gif) 
 
