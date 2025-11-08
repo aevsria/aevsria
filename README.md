@@ -3,6 +3,9 @@
 </p>
 
 　　　　　　　　　　　　　　　　　　　　　　⠀⠀　　　　⠀　![](https://komarev.com/ghpvc/?username=aevsria&label=☆&color=7c3fa9)
+
+<p align="center">$\color{#9cead8}{kate}$ <br>
+<p align="center">$\color{#9cead8}{ֆɦɛ \space // \space ɦɛʀ}$ <br>
  
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strawpage](https://prettyyinpink.straw.page/) [prns](https://en.pronouns.page/@aevsria) [ata](https://aevsria.atabook.org/?page=1)
@@ -16,8 +19,6 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=g0ajh2dlv0n03s8ei2qrox2vi&cover_image=true&theme=novatorem&show_offline=true&background_color=5c2f79&interchange=true&profanity=true&bar_color=9ae5d6&bar_color_cover=false">
   </a>
 </p>
-
-⠀<p align="center">$\color{#9cead8}{kate}$ <br>
 
 
 <p align="center">
