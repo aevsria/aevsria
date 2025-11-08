@@ -12,7 +12,7 @@
 ⠀<p align="center">$\color{purple}{━ \space νιєωє∂ \space вєттєя \space ση \space ρc \space ━}$ <br>
 
 
-　　　⠀⠀　　　　⠀　　　　⠀⠀　　　![Typing SVG](https://readme-typing-svg.demolab.com/?lines=i+stayed+here+and+never+made+another+friend;because+i+was+too+afraid+another+cutie+mark+would;+take+them+away+too.)
+　　　⠀⠀　　　　⠀　　　　⠀⠀　　　![Typing SVG](https://readme-typing-svg.demolab.com/?lines=i+stayed+here+and+never+made+another+friend;because+i+was+too+afraid+another+cutie;mark+would+take+them+away+too.)
 
 
 <p align="center">
