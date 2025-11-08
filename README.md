@@ -25,11 +25,6 @@
 <p align="center">
   <img src="https://github.com/aevsria/aevsria/blob/main/IMG_0739.gif?raw=true" />
 </p>
-
-
-<p align="center">
-  <img src="https://github.com/aevsria/aevsria/blob/main/IMG_0737.png?raw=true" />
-</p>
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
