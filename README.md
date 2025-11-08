@@ -7,7 +7,7 @@
 
 ⠀<p align="center">νιєωє∂ вєттєя ση ρ¢
 
-https://spotify-github-profile.aevsria.com
+
                         
 
 <!--
