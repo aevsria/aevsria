@@ -17,7 +17,6 @@
   </a>
 </p>
 
-## youre not a PRINCESS princess
 
 <p align="center">
   <img src="https://github.com/aevsria/aevsria/blob/main/IMG_0737.png?raw=true" />
