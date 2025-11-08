@@ -1,9 +1,9 @@
-　　　　　　　　　　　　　　　　　　　　　　⠀⠀　　　　⠀　![](https://komarev.com/ghpvc/?username=aevsria&label=☆&color=7c3fa9)
+<p align="center">![](https://komarev.com/ghpvc/?username=aevsria&label=☆&color=7c3fa9)
  
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strawpage](https://prettyyinpink.straw.page/) [prns](https://en.pronouns.page/@aevsria) [ata](https://aevsria.atabook.org/?page=1)
+<p align="center">[strawpage](https://prettyyinpink.straw.page/) [prns](https://en.pronouns.page/@aevsria) [ata](https://aevsria.atabook.org/?page=1)
 
- ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="center">![image](https://github.com/aevsria/aevsria/blob/197cbc9f93d390fd3cb5e9dfc7f621958a70238d/IMG_0734.gif) 
+<p align="center">![image](https://github.com/aevsria/aevsria/blob/197cbc9f93d390fd3cb5e9dfc7f621958a70238d/IMG_0734.gif) 
 
 <p align="center">νιєωє∂ вєттєя ση ρ¢
                         
