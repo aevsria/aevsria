@@ -18,6 +18,8 @@
   </a>
 </p>
 
+<p align="center">![image](https://github.com/aevsria/aevsria/blob/main/IMG_0739.gif?raw=true)
+
 
 <p align="center">
   <img src="https://github.com/aevsria/aevsria/blob/main/IMG_0737.png?raw=true" />
