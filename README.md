@@ -5,7 +5,7 @@
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="center">![image](https://github.com/aevsria/aevsria/blob/197cbc9f93d390fd3cb5e9dfc7f621958a70238d/IMG_0734.gif) 
 
-⠀<p align="center">━ νιєωє∂ вєттєя ση ρ¢ ━
+⠀<p align="center"><span style='color: purple;'>━ νιєωє∂ вєттєя ση ρ¢ ━</span>━ νιєωє∂ вєттєя ση ρ¢ ━
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=g0ajh2dlv0n03s8ei2qrox2vi&redirect=true">
