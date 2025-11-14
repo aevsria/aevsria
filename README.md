@@ -1,6 +1,6 @@
 
 
-　　　　　　　　　　　　　　　　　　　　　　⠀⠀　　　　⠀　![](https://komarev.com/ghpvc/?username=aevsria&label=⠀☆⠀&color=7c3fa9)
+　　　　　　　　　　　　　　　　　　　　　　⠀⠀　　　　⠀　![](https://komarev.com/ghpvc/?username=aevsria&label=⠀☆⠀&color=F5FFFF)
  
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strawpage](https://prettyyinpink.straw.page/) [prns](https://en.pronouns.page/@aevsria) [ata](https://aevsria.atabook.org/?page=1)
