@@ -6,7 +6,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strawpage](https://prettyyinpink.straw.page/) [prns](https://en.pronouns.page/@aevsria) [ata](https://aevsria.atabook.org/?page=1)
 
 
- ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="center">![image](https://github.com/aevsria/aevsria/blob/8b1ba76e75c78850344131d71eb38ac8787b64c6/IMG_0750-removebg-preview.png) 
+ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="center">![image]() 
 
 ⠀<p align="center">$\color{lightpink}{━ \space νιєωє∂  \space вєттєя  \space ση  \space ρc  \space ━}$ <br>
  <p align="center">$\color{#ffe4ed}{αℓℓ  \space ιηƒσ  \space ιη  \space ℓιηкѕ}$ <br>
