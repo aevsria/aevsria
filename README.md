@@ -9,7 +9,7 @@
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="center">![image](https://github.com/aevsria/aevsria/blob/8b1ba76e75c78850344131d71eb38ac8787b64c6/IMG_0750-removebg-preview.png) 
 
 ⠀<p align="center">$\color{lightpink}{━ \space νιєωє∂  \space вєттєя  \space ση  \space ρc  \space ━}$ <br>
- <p align="center">$\color{#9cead8}{αℓℓ  \space ιηƒσ  \space ιη  \space ℓιηкѕ}$ <br>
+ <p align="center">$\color{#ffe4ed}{αℓℓ  \space ιηƒσ  \space ιη  \space ℓιηкѕ}$ <br>
 
  <p align="center">
   <img src="https://github.com/aevsria/aevsria/blob/main/IMG_0740.gif?raw=true" />
