@@ -10,7 +10,7 @@
  <p align="center">$\color{#ffe4ed}{αℓℓ  \space ιηƒσ  \space ιη  \space ℓιηкѕ}$ <br>
 
  <p align="center">
-  <img src="https://github.com/aevsria/aevsria/blob/64ae21592389c3e41c5318eeb6981b7e3d776cfc/IMG_0756.png" />
+  <img src="https://github.com/aevsria/aevsria/blob/main/IMG_0801.png?raw=true" />
 </p>
 
 
