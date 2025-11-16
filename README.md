@@ -21,7 +21,7 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/aevsria/aevsria/blob/main/IMG_0803.gif?raw=true" />
+  <img src="https://github.com/aevsria/aevsria/blob/main/IMG_0807.png?raw=true" />
 </p>
 
 
