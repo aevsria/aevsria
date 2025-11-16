@@ -6,8 +6,8 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strawpage](https://prettyyinpink.straw.page/) [prns](https://en.pronouns.page/@aevsria) [ata](https://aevsria.atabook.org/?page=1)
 
 
-⠀<p align="center">$\color{lightpink}{━ \space νιєωє∂  \space вєттєя  \space ση  \space ρc  \space ━}$ <br>
- <p align="center">$\color{#ffe4ed}{αℓℓ  \space ιηƒσ  \space ιη  \space ℓιηкѕ}$ <br>
+⠀<p align="center">$\color{gold}{━ \space νιєωє∂  \space вєттєя  \space ση  \space ρc  \space ━}$ <br>
+ <p align="center">$\color{#c0472c}{αℓℓ  \space ιηƒσ  \space ιη  \space ℓιηкѕ}$ <br>
 
  <p align="center">
   <img src="https://github.com/aevsria/aevsria/blob/main/IMG_0801.png?raw=true" />
