@@ -32,8 +32,6 @@
 <p align="center">
   <img src="https://github.com/aevsria/aevsria/blob/main/IMG_0805.jpeg?raw=true" />
 </p>
-
-![](https://github.com/aevsria/aevsria/blob/f5a104c49c4e1d6f6f1a194084d4e8994349c801/IMG_0754.png)
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
