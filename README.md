@@ -12,7 +12,7 @@
  <p align="center">$\color{#D10000}{αℓℓ  \space ιηƒσ  \space ιη  \space ℓιηкѕ}$ <br>
 
  <p align="center">
-  <img src="https://github.com/aevsria/aevsria/blob/fbb915b75b0da69c3aa148dc6de604911452d017/IMG_0839.gif" />
+  <img src="https://github.com/aevsria/aevsria/blob/2cdcb2d37faf60240c12a81b1427f416f2fa1a7b/Unknown.jpeg" />
 </p>
 
 
@@ -23,16 +23,16 @@
 </p>
 
 <p align="center">
+  <img src="https://github.com/aevsria/aevsria/blob/2cdcb2d37faf60240c12a81b1427f416f2fa1a7b/IMG_0839.gif" />
+</p>
+
+
+<p align="center">
   <img src="https://github.com/aevsria/aevsria/blob/fbb915b75b0da69c3aa148dc6de604911452d017/IMG_0840.gif" />
 </p>
 
-
 <p align="center">
   <img src="https://github.com/aevsria/aevsria/blob/fbb915b75b0da69c3aa148dc6de604911452d017/IMG_0841.gif" />
-</p>
-
-<p align="center">
-  <img src="https://github.com/aevsria/aevsria/blob/main/IMG_0805.jpeg?raw=true" />
 </p>
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
