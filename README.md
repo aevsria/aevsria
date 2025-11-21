@@ -1,16 +1,16 @@
-![](https://github.com/aevsria/aevsria/blob/main/IMG_0804.png?raw=true)
+![](https://github.com/aevsria/aevsria/blob/fbb915b75b0da69c3aa148dc6de604911452d017/IMG_0842.gif)
 
-　　　　　　　　　　　　　　　　　　　　　　⠀⠀　　　　⠀　![](https://komarev.com/ghpvc/?username=aevsria&label=⠀☆⠀&color=870c0b)
+　　　　　　　　　　　　　　　　　　　　　　⠀⠀　　　　⠀　![](https://komarev.com/ghpvc/?username=aevsria&label=⠀☆⠀&color=914da8)
  
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strawpage](https://prettyyinpink.straw.page/) [prns](https://en.pronouns.page/@aevsria) [ata](https://aevsria.atabook.org/?page=1)
 
 
-⠀<p align="center">$\color{#b78727}{━ \space νιєωє∂  \space вєттєя  \space ση  \space ρc  \space ━}$ <br>
- <p align="center">$\color{#c0472c}{αℓℓ  \space ιηƒσ  \space ιη  \space ℓιηкѕ}$ <br>
+⠀<p align="center">$\color{#3FAB58}{━ \space νιєωє∂  \space вєттєя  \space ση  \space ρc  \space ━}$ <br>
+ <p align="center">$\color{#D10000}{αℓℓ  \space ιηƒσ  \space ιη  \space ℓιηкѕ}$ <br>
 
  <p align="center">
-  <img src="https://github.com/aevsria/aevsria/blob/main/IMG_0801.png?raw=true" />
+  <img src="https://github.com/aevsria/aevsria/blob/fbb915b75b0da69c3aa148dc6de604911452d017/IMG_0839.gif" />
 </p>
 
 
@@ -21,12 +21,12 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/aevsria/aevsria/blob/main/IMG_0802.jpeg?raw=true" />
+  <img src="https://github.com/aevsria/aevsria/blob/fbb915b75b0da69c3aa148dc6de604911452d017/IMG_0840.gif" />
 </p>
 
 
 <p align="center">
-  <img src="https://github.com/aevsria/aevsria/blob/main/IMG_0806.jpeg?raw=true" />
+  <img src="https://github.com/aevsria/aevsria/blob/fbb915b75b0da69c3aa148dc6de604911452d017/IMG_0841.gif" />
 </p>
 
 <p align="center">
