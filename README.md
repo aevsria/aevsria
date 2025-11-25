@@ -32,7 +32,7 @@
 
 
 <p align="center">
-  <img src="https://github.com/aevsria/aevsria/blob/ca2af209252fe56ee931794cc511d63360d3fe5c/IMG_0860.gif" />
+  <img src="https://github.com/aevsria/aevsria/blob/b29fe42a8951cbbf3e52420fe2aafaf714cd1c62/IMG_0861.gif" />
 </p>
 
 <p align="center">
