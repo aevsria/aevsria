@@ -9,8 +9,6 @@
 　　　　　　　　　　　　　　　　　　　　　　⠀⠀　　　　⠀　![](https://komarev.com/ghpvc/?username=aevsria&label=⠀☆⠀&color=fe6d87)
  
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strawpage](https://prettyyinpink.straw.page/) [prns](https://en.pronouns.page/@aevsria) [ata](https://aevsria.atabook.org/?page=1)
-
 
 ⠀<p align="center">$\color{#d8e093}{━ \space νιєωє∂  \space вєттєя  \space ση  \space ρc  \space ━}$ <br>
  <p align="center">$\color{#b1244c}{αℓℓ  \space ιηƒσ  \space ιη  \space ℓιηкѕ}$ <br>
