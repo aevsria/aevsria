@@ -6,7 +6,7 @@
   <img src="https://github.com/aevsria/aevsria/blob/30feecc99c287a26dde2f5565371777fc5147973/IMG_0858.gif" />
 </p>
 
-                              ![](https://komarev.com/ghpvc/?username=aevsria&label=⠀☆⠀&color=fe6d87)
+                               <p align="center">![](https://komarev.com/ghpvc/?username=aevsria&label=⠀☆⠀&color=fe6d87)
  
 
 
