@@ -1,5 +1,5 @@
  <p align="center">
-  <img src="https://github.com/aevsria/aevsria/blob/ee12ebdf466c19426423b7cbbc7a9daef0aaaa2d/IMG_0843.gif" />
+  <img src="https://github.com/aevsria/aevsria/blob/d322549ecb6d0bdf29faecf84e12581407280ed9/IMG_0859.png" />
 </p>
 
 　　　　　　　　　　　　　　　　　　　　　　⠀⠀　　　　⠀　![](https://komarev.com/ghpvc/?username=aevsria&label=⠀☆⠀&color=914da8)
@@ -12,7 +12,7 @@
  <p align="center">$\color{#D10000}{αℓℓ  \space ιηƒσ  \space ιη  \space ℓιηкѕ}$ <br>
 
  <p align="center">
-  <img src="https://github.com/aevsria/aevsria/blob/2cdcb2d37faf60240c12a81b1427f416f2fa1a7b/Unknown.jpeg" />
+  <img src="https://github.com/aevsria/aevsria/blob/d322549ecb6d0bdf29faecf84e12581407280ed9/IMG_0862.png" />
 </p>
 
 
@@ -32,7 +32,7 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/aevsria/aevsria/blob/fbb915b75b0da69c3aa148dc6de604911452d017/IMG_0841.gif" />
+  <img src="https://github.com/aevsria/aevsria/blob/d322549ecb6d0bdf29faecf84e12581407280ed9/IMG_0857.png" />
 </p>
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
