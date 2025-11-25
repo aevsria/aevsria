@@ -38,10 +38,6 @@
 <p align="center">
   <img src="https://github.com/aevsria/aevsria/blob/d322549ecb6d0bdf29faecf84e12581407280ed9/IMG_0857.png" />
 </p>
-
- <p align="center">
-  <img src="![](https://komarev.com/ghpvc/?username=aevsria&label=⠀☆⠀&color=fe6d87)" />
-</p>
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
