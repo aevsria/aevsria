@@ -2,14 +2,14 @@
   <img src="https://github.com/aevsria/aevsria/blob/d322549ecb6d0bdf29faecf84e12581407280ed9/IMG_0859.png" />
 </p>
 
-　　　　　　　　　　　　　　　　　　　　　　⠀⠀　　　　⠀　![](https://komarev.com/ghpvc/?username=aevsria&label=⠀☆⠀&color=914da8)
+　　　　　　　　　　　　　　　　　　　　　　⠀⠀　　　　⠀　![](https://komarev.com/ghpvc/?username=aevsria&label=⠀☆⠀&color=fe6d87)
  
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strawpage](https://prettyyinpink.straw.page/) [prns](https://en.pronouns.page/@aevsria) [ata](https://aevsria.atabook.org/?page=1)
 
 
-⠀<p align="center">$\color{#3FAB58}{━ \space νιєωє∂  \space вєттєя  \space ση  \space ρc  \space ━}$ <br>
- <p align="center">$\color{#D10000}{αℓℓ  \space ιηƒσ  \space ιη  \space ℓιηкѕ}$ <br>
+⠀<p align="center">$\color{#d8e093}{━ \space νιєωє∂  \space вєттєя  \space ση  \space ρc  \space ━}$ <br>
+ <p align="center">$\color{#b1244c}{αℓℓ  \space ιηƒσ  \space ιη  \space ℓιηкѕ}$ <br>
 
  <p align="center">
   <img src="https://github.com/aevsria/aevsria/blob/d322549ecb6d0bdf29faecf84e12581407280ed9/IMG_0862.png" />
@@ -23,7 +23,7 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/aevsria/aevsria/blob/2cdcb2d37faf60240c12a81b1427f416f2fa1a7b/IMG_0839.gif" />
+  <img src="https://github.com/aevsria/aevsria/blob/de564d1c0e9e592fe9e3827838b5ea8950dc161c/IMG_0860.gif" />
 </p>
 
 
