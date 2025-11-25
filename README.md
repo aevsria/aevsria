@@ -39,7 +39,9 @@
   <img src="https://github.com/aevsria/aevsria/blob/d322549ecb6d0bdf29faecf84e12581407280ed9/IMG_0857.png" />
 </p>
 
-<tr><td><img src="https://github.com/aevsria/aevsria/blob/de564d1c0e9e592fe9e3827838b5ea8950dc161c/IMG_0860.gif"></td><td><img src="https://github.com/aevsria/aevsria/blob/b375d1297a14ccb5d9e496b01f989d34fec31e77/IMG_0858.gif"></td></tr>
+ <p align="center">
+  <img src="![](https://komarev.com/ghpvc/?username=aevsria&label=⠀☆⠀&color=fe6d87)" />
+</p>
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
