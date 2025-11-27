@@ -18,9 +18,7 @@
 </p>
 
 
-<p align="center">
-  <img src="https://github.com/aevsria/aevsria/blob/de564d1c0e9e592fe9e3827838b5ea8950dc161c/IMG_0860.gif" />
-</p>
+
 
 
 <p align="center">
