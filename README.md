@@ -31,10 +31,6 @@
 <p align="center">
   <img src="https://github.com/aevsria/aevsria/blob/d322549ecb6d0bdf29faecf84e12581407280ed9/IMG_0857.png" />
 </p>
-
- <p align="center">
-  <img src="https://github.com/aevsria/aevsria/blob/f083c4ffc19d204af2006e937e2f300f617a4a17/Untitled39_20251201182903-removebg-preview.png" />
- </p>
 <!--
 **aevsria/aevsria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
