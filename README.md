@@ -25,7 +25,7 @@
   <img src="https://github.com/aevsria/aevsria/blob/b29fe42a8951cbbf3e52420fe2aafaf714cd1c62/IMG_0861.gif" />
 </p>
 
-<p align="center">my ugly art 💝💝
+<p align="center">my ugly art 💝😔
  <p align="center">
   <img src="https://github.com/aevsria/aevsria/blob/11d627c5345a72e98e673f852f39e48f968bb4eb/Untitled39_20251201182903-removebg-preview.png" />
  </p>
