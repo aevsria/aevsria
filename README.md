@@ -2,8 +2,6 @@
   <img src="https://github.com/aevsria/aevsria/blob/d322549ecb6d0bdf29faecf84e12581407280ed9/IMG_0859.png" />
  </p>
 
-<p align="center">color my [tree](https://colormytree.me/2025/01KBFQNCVX9JW06GTG817K9PJ1). please!
-
  <p align="center">
   <img src="https://github.com/aevsria/aevsria/blob/30feecc99c287a26dde2f5565371777fc5147973/IMG_0858.gif" />
 </p>
