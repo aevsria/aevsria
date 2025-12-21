@@ -2,7 +2,9 @@
                                <p align="center">![](https://komarev.com/ghpvc/?username=aevsria&label=⠀☆⠀&color=c988a8)
 
 
-<p align="center">[color my tree](https://colormytree.me/2025/01KBFQNCVX9JW06GTG817K9PJ1)
+<p align="center">
+  <img src="[color my tree](https://colormytree.me/2025/01KBFQNCVX9JW06GTG817K9PJ1)" />
+</p>[color my tree](https://colormytree.me/2025/01KBFQNCVX9JW06GTG817K9PJ1)
 <p align="center">[atabook](https://aevsria.atabook.org/?page=1) [strawpage](https://prettyyinpink.straw.page/)
 <p align="center">[prns page](https://en.pronouns.page/@aevsria)
  
