@@ -9,4 +9,6 @@ https://github.com/user-attachments/assets/2765f78b-2e1f-45fd-849f-3486ee422332
 </p>
 
 
-https://github.com/user-attachments/assets/c4b3fc9e-e168-45e1-8c60-96b91d5f5d45
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/c4b3fc9e-e168-45e1-8c60-96b91d5f5d45" />
+</p>
