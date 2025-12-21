@@ -1,10 +1,10 @@
 
                                <p align="center">![](https://komarev.com/ghpvc/?username=aevsria&label=⠀☆⠀&color=c988a8)
 
-[color my tree](https://colormytree.me/2025/01KBFQNCVX9JW06GTG817K9PJ1)
-[atabook](https://aevsria.atabook.org/?page=1) [strawpage](https://prettyyinpink.straw.page/)
-[prns page](https://en.pronouns.page/@aevsria)
- 
+<p align="center">[color my tree](https://colormytree.me/2025/01KBFQNCVX9JW06GTG817K9PJ1)</p>
+
+<p align="center">[ata](https://aevsria.atabook.org/?page=1) [straw](https://prettyyinpink.straw.page/) [prns](https://en.pronouns.page/@aevsria)</p>
+
 
 https://github.com/user-attachments/assets/2765f78b-2e1f-45fd-849f-3486ee422332
 
