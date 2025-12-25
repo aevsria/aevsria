@@ -5,7 +5,7 @@
 <div align="center"[color my tree](https://colormytree.me/2025/01KBFQNCVX9JW06GTG817K9PJ1)
 
 
-[color my tree](https://colormytree.me/2025/01KBFQNCVX9JW06GTG817K9PJ1) [ata](https://aevsria.atabook.org/?page=1) [straw](https://prettyyinpink.straw.page/) [prns](https://en.pronouns.page/@aevsria)
+[ata](https://aevsria.atabook.org/?page=1) [straw](https://prettyyinpink.straw.page/) [prns](https://en.pronouns.page/@aevsria)
 
 
 https://github.com/user-attachments/assets/2765f78b-2e1f-45fd-849f-3486ee422332
