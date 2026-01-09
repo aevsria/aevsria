@@ -14,7 +14,7 @@ https://github.com/user-attachments/assets/e0417a4b-1916-49a1-88aa-db8d16a1650f
 <p align="center">
   <img src="https://github.com/aevsria/aevsria/blob/a5af12cf6039a15433b668da22adc08a1f45e4c7/parfies.jpeg" />
 </p>
-
 us 🥹🥹 (platonic parfies))
+
 
 https://github.com/user-attachments/assets/9da46c38-fa63-4433-bf75-38c6695e5164
