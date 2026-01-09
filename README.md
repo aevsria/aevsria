@@ -22,3 +22,7 @@ us 🥹🥹 (platonic parfies))
 https://github.com/user-attachments/assets/2ad32920-2e46-4cbd-aea4-d102d73b7318
 
 https://github.com/user-attachments/assets/2b3b24af-048a-42fa-91d5-557e7a3b26e2
+
+<p align="center">
+<img src="https://github.com/aevsria/aevsria/blob/2bf5e3d2510e78af3434cc4134571d3beb5122c6/IMG_0991.jpeg" />
+</p>
