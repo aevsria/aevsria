@@ -16,8 +16,6 @@ https://github.com/user-attachments/assets/ad93d70b-a2d4-419f-bc28-5f8e3fc9001c
   <img src="https://github.com/aevsria/aevsria/blob/a5af12cf6039a15433b668da22adc08a1f45e4c7/parfies.jpeg" />
 </p>
 
-us 🥹🥹 (platonic parfies))
-
 
 https://github.com/user-attachments/assets/2ad32920-2e46-4cbd-aea4-d102d73b7318
 
