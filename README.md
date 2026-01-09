@@ -10,7 +10,6 @@
 
 https://github.com/user-attachments/assets/ad93d70b-a2d4-419f-bc28-5f8e3fc9001c
 
-https://github.com/user-attachments/assets/e0417a4b-1916-49a1-88aa-db8d16a1650f
 <p align="center">creds for videos are in them</p>
 
 <p align="center">
@@ -21,3 +20,5 @@ us 🥹🥹 (platonic parfies))
 
 
 https://github.com/user-attachments/assets/9da46c38-fa63-4433-bf75-38c6695e5164
+
+https://github.com/user-attachments/assets/e0417a4b-1916-49a1-88aa-db8d16a1650f
