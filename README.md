@@ -21,6 +21,3 @@ https://github.com/user-attachments/assets/ad93d70b-a2d4-419f-bc28-5f8e3fc9001c
 
 https://github.com/user-attachments/assets/2ad32920-2e46-4cbd-aea4-d102d73b7318
 
-<p align="center">
-<img src="https://github.com/aevsria/aevsria/blob/2bf5e3d2510e78af3434cc4134571d3beb5122c6/IMG_0991.jpeg" />
-</p>
