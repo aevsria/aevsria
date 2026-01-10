@@ -12,8 +12,6 @@
 
 ![image](https://github.com/aevsria/aevsria/blob/007049fdace7286973dd5c778a733286550ef5a9/IMG_1014.png)![image](https://github.com/aevsria/aevsria/blob/007049fdace7286973dd5c778a733286550ef5a9/IMG_1015.png)
 
-pre-mafia odyssey duo has a special place in my heart
-
 <p align="center">
   <img src="https://github.com/aevsria/aevsria/blob/007049fdace7286973dd5c778a733286550ef5a9/IMG_1012.jpeg" />
 </p>
