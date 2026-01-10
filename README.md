@@ -15,7 +15,7 @@ https://github.com/user-attachments/assets/ad93d70b-a2d4-419f-bc28-5f8e3fc9001c
 <p align="center">creds for videos are in them</p>
 
 <p align="center">
-  <img src="https://github.com/aevsria/aevsria/blob/849382e17178e827879fa3fe2d45cf3ed6ba7e84/IMG_0992.jpeg" />
+  <img src="https://github.com/aevsria/aevsria/blob/f4311ec02c6f5065999e550c73db6a6e33c02d1e/Unknown.jpeg" />
 </p>
 
 <p align="center">pfp cr - riverofdandelions on tt</p>
