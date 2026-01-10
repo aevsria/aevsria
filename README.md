@@ -17,7 +17,3 @@ https://github.com/user-attachments/assets/ad93d70b-a2d4-419f-bc28-5f8e3fc9001c
 <p align="center">
   <img src="https://github.com/aevsria/aevsria/blob/849382e17178e827879fa3fe2d45cf3ed6ba7e84/IMG_0992.jpeg" />
 </p>
-
-
-https://github.com/user-attachments/assets/2ad32920-2e46-4cbd-aea4-d102d73b7318
-
