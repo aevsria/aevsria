@@ -25,4 +25,6 @@
 <p align="center">pfp by riverofdandelions on tt</p>
 
 
-https://github.com/user-attachments/assets/ad93d70b-a2d4-419f-bc28-5f8e3fc9001c
+https://github.com/user-attachments/assets/97701061-0dbf-4ea0-a7c8-dde7984d03b4
+
+https://github.com/user-attachments/assets/deae4741-597c-4672-b862-0ed54cb5b889
