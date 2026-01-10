@@ -18,6 +18,8 @@ https://github.com/user-attachments/assets/ad93d70b-a2d4-419f-bc28-5f8e3fc9001c
   <img src="https://github.com/aevsria/aevsria/blob/007049fdace7286973dd5c778a733286550ef5a9/IMG_1012.jpeg" />
 </p>
 
+![image](https://github.com/aevsria/aevsria/blob/8c8f06cb2785b3f54b8f0b5029094a5204d308e4/IMG_1018.png) ![image](https://github.com/aevsria/aevsria/blob/d7b6003e4aef33b7b5578126b420797b4f0f8450/IMG_1017.png)
+
 <p align="center">pfp by riverofdandelions on tt</p>
 
 
