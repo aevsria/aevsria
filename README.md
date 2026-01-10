@@ -19,7 +19,7 @@ pre-mafia odyssey duo has a special place in my heart
 </p>
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Happy+monkey&pause=1000&color=614774&center=true&vCenter=true&width=435&lines=Thank+you+for+being+my+friend.;Anytime%2C+dude+%3A%5D)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=happy+monkey&duration=4700&pause=200&color=6D5088&center=true&vCenter=true&width=435&lines=wifies%2C+ive+never+really+gotten;an+opportunity+to+say+this%2C+but%2C;thank+you+for+being+my+friend.;anytime+dude+%3A%5D)](https://git.io/typing-svg)
 
 
 ![image](https://github.com/aevsria/aevsria/blob/8c8f06cb2785b3f54b8f0b5029094a5204d308e4/IMG_1018.png) ![image](https://github.com/aevsria/aevsria/blob/d7b6003e4aef33b7b5578126b420797b4f0f8450/IMG_1017.png)
