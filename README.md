@@ -1,5 +1,5 @@
                                
-                               <div align="center">![](https://komarev.com/ghpvc/?username=aevsria&label=⠀☆⠀&color=522766)
+                               <div align="center">![](https://komarev.com/ghpvc/?username=aevsria&label=its+all+yours.&color=522766)
                                
 
 <div align="center"[color my tree](https://colormytree.me/2025/01KBFQNCVX9JW06GTG817K9PJ1)
