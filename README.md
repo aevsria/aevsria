@@ -10,12 +10,13 @@
 
 https://github.com/user-attachments/assets/ad93d70b-a2d4-419f-bc28-5f8e3fc9001c
 
-<p align="center">creds for videos are in them</p>
+![image](https://github.com/aevsria/aevsria/blob/007049fdace7286973dd5c778a733286550ef5a9/IMG_1014.png)![image](https://github.com/aevsria/aevsria/blob/007049fdace7286973dd5c778a733286550ef5a9/IMG_1015.png) <p align="center">creds for videos are in them</p>
 
 <p align="center">
-  <img src="https://github.com/aevsria/aevsria/blob/f4311ec02c6f5065999e550c73db6a6e33c02d1e/Unknown.jpeg" />
+  <img src="https://github.com/aevsria/aevsria/blob/007049fdace7286973dd5c778a733286550ef5a9/IMG_1012.jpeg" />
 </p>
 
-<p align="center">pfp cr - riverofdandelions on tt</p>
+<p align="center">pfp by riverofdandelions on tt</p>
+
 
 https://github.com/user-attachments/assets/3c674f76-e27a-413c-ae71-90097634c3b6
