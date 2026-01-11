@@ -22,6 +22,7 @@
 
 ![image](https://github.com/aevsria/aevsria/blob/8c8f06cb2785b3f54b8f0b5029094a5204d308e4/IMG_1018.png) ![image](https://github.com/aevsria/aevsria/blob/d7b6003e4aef33b7b5578126b420797b4f0f8450/IMG_1017.png)
 
+pre mafia odyssey duo will always have a special place in my heart
 
 ![image](https://github.com/aevsria/aevsria/blob/98453bedde70fda2d6c1ea91b37cff4bc9c98e99/IMG_1029.jpeg)
 
