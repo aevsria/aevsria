@@ -24,6 +24,8 @@
 
 <p align="center">pfp by teri_yxy on x</p>
 
+![image](https://github.com/aevsria/aevsria/blob/98453bedde70fda2d6c1ea91b37cff4bc9c98e99/IMG_1029.jpeg)
+
 creds for vids are in them
 
 
