@@ -13,6 +13,10 @@
 ![image](https://github.com/aevsria/aevsria/blob/007049fdace7286973dd5c778a733286550ef5a9/IMG_1014.png)![image](https://github.com/aevsria/aevsria/blob/007049fdace7286973dd5c778a733286550ef5a9/IMG_1015.png)
 
 
+w2i preferred,, usually offtab; c*h always encouraged
+though i wont be talking first or too much - im incredibly shy
+
+
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Indie+Flower&duration=4300&pause=1&color=6D488A&center=true&vCenter=true&multiline=true&repeat=false&width=435&height=125&lines=wifies%2C+ive+never+gotten+an+opportunity;to+say+this%2C+but%2C+thank+you+for+being+my+friend.;+.++.++.+;%E2%80%9C+anytime+dude+%3A%5D+%E2%80%9C)](https://git.io/typing-svg)
 
 
