@@ -13,7 +13,7 @@
 ![image](https://github.com/aevsria/aevsria/blob/007049fdace7286973dd5c778a733286550ef5a9/IMG_1014.png)![image](https://github.com/aevsria/aevsria/blob/007049fdace7286973dd5c778a733286550ef5a9/IMG_1015.png)
 
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Indie+Flower&duration=4300&pause=1&color=8CAC49&center=true&vCenter=true&multiline=true&repeat=false&width=435&height=285&lines=%E2%80%9Cwifies%2C+when+i+leave+this+place%2C;when+i+get+out+of+this+prison%2C;just+know%2C+even+after+all+that+you+did%2C;im+not+gonna+remember+you+as;the+player+who+did+all+these+horrible+things.;when+people+ask+me+about+who+wifies+was%2C;im+gonna+remember+you+as;the+wifies+i+used+to+know%2C;the+wifies+that+cared+about+other+people;and+was+kind+to+everyone%2C;the+wifies+that+gave+me+the+spyglass.%E2%80%9D)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Indie+Flower&duration=4300&pause=1&color=6D488A&center=true&vCenter=true&multiline=true&repeat=false&width=435&height=125&lines=wifies%2C+ive+never+gotten+an+opportunity;to+say+this%2C+but%2C+thank+you+for+being+my+friend.;+.++.++.+;%E2%80%9C+anytime+dude+%3A%5D+%E2%80%9C)](https://git.io/typing-svg)
 
 
 <p align="center">
@@ -21,7 +21,7 @@
 </p>
 
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Indie+Flower&duration=4300&pause=1&color=6D488A&center=true&vCenter=true&multiline=true&repeat=false&width=435&height=125&lines=wifies%2C+ive+never+gotten+an+opportunity;to+say+this%2C+but%2C+thank+you+for+being+my+friend.;+.++.++.+;%E2%80%9C+anytime+dude+%3A%5D+%E2%80%9C)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Indie+Flower&duration=4300&pause=1&color=8CAC49&center=true&vCenter=true&multiline=true&repeat=false&width=435&height=285&lines=%E2%80%9Cwifies%2C+when+i+leave+this+place%2C;when+i+get+out+of+this+prison%2C;just+know%2C+even+after+all+that+you+did%2C;im+not+gonna+remember+you+as;the+player+who+did+all+these+horrible+things.;when+people+ask+me+about+who+wifies+was%2C;im+gonna+remember+you+as;the+wifies+i+used+to+know%2C;the+wifies+that+cared+about+other+people;and+was+kind+to+everyone%2C;the+wifies+that+gave+me+the+spyglass.%E2%80%9D)](https://git.io/typing-svg)
 
 
 ![image](https://github.com/aevsria/aevsria/blob/8c8f06cb2785b3f54b8f0b5029094a5204d308e4/IMG_1018.png) ![image](https://github.com/aevsria/aevsria/blob/d7b6003e4aef33b7b5578126b420797b4f0f8450/IMG_1017.png)
