@@ -29,10 +29,3 @@
 pre mafia odyssey duo will always have a special place in my heart
 
 ![image](https://github.com/aevsria/aevsria/blob/98453bedde70fda2d6c1ea91b37cff4bc9c98e99/IMG_1029.jpeg)
-
-creds for vids are in them
-
-
-https://github.com/user-attachments/assets/97701061-0dbf-4ea0-a7c8-dde7984d03b4
-
-https://github.com/user-attachments/assets/deae4741-597c-4672-b862-0ed54cb5b889
