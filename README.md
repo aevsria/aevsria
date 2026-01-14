@@ -21,7 +21,7 @@
 </p>
 
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Indie+Flower&duration=4650&pause=1&color=513779&center=true&vCenter=true&multiline=true&width=435&height=150&lines=wifies%2C+ive+never+really+gotten;an+opportunity+to+say+this%2C+but%2C;thank+you+for+being+my+friend.;.+.+.;anytime+dude+%3A%5D)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Indie+Flower&duration=4300&pause=1&color=6D488A&center=true&vCenter=true&multiline=true&repeat=false&width=435&height=285&lines=wifies%2C+ive+never+gotten+an+opportunity;to+say+this%2C+but%2C+thank+you+for+being+my+friend.;+.++.++.+;%E2%80%9C+anytime+dude+%3A%5D+%E2%80%9C)](https://git.io/typing-svg)
 
 
 ![image](https://github.com/aevsria/aevsria/blob/8c8f06cb2785b3f54b8f0b5029094a5204d308e4/IMG_1018.png) ![image](https://github.com/aevsria/aevsria/blob/d7b6003e4aef33b7b5578126b420797b4f0f8450/IMG_1017.png)
