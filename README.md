@@ -17,7 +17,7 @@
 
 
 <p align="center">
-  <img src="https://github.com/aevsria/aevsria/blob/06b064f15ac72b7a65ee09e11e5fc24de9edaa45/IMG_1058-Photoroom.png" />
+  <img src="https://github.com/aevsria/aevsria/blob/ed78df6d99ee8e5964e1e9ed2841ceeb3407e2fb/Untitled44_20260115161656-Photoroom.png" />
 </p>
 
 
