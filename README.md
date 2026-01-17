@@ -25,6 +25,8 @@
 
 pre mafia odyssey duo will always have a special place in my heart
 
+https://github.com/user-attachments/assets/66c6a9a9-54f4-4529-8c1a-753be98369d4
+
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Indie+Flower&duration=4300&pause=1&color=8CAC49&center=true&vCenter=true&multiline=true&repeat=false&width=435&height=285&lines=%E2%80%9Cwifies%2C+when+i+leave+this+place%2C;when+i+get+out+of+this+prison%2C;just+know%2C+even+after+all+that+you+did%2C;im+not+gonna+remember+you+as;the+player+who+did+all+these+horrible+things.;when+people+ask+me+about+who+wifies+was%2C;im+gonna+remember+you+as;the+wifies+i+used+to+know%2C;the+wifies+that+cared+about+other+people;and+was+kind+to+everyone%2C;the+wifies+that+gave+me+the+spyglass.%E2%80%9D)](https://git.io/typing-svg)
 
 ![image](https://github.com/aevsria/aevsria/blob/98453bedde70fda2d6c1ea91b37cff4bc9c98e99/IMG_1029.jpeg)
