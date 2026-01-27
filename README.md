@@ -7,3 +7,5 @@
   
 [ata](https://aevsria.atabook.org/?page=1) [straw](https://prettyyinpink.straw.page/) [prns](https://en.pronouns.page/@aevsria)
 
+
+![image](https://github.com/aevsria/aevsria/blob/1ab50a69d0b7979c7ed4c5cd16fcba79e3c20d24/IMG_1212.png)
