@@ -8,4 +8,4 @@
 [ata](https://aevsria.atabook.org/?page=1) [straw](https://katefies.straw.page) [prns](https://en.pronouns.page/@aevsria)
 
 
-![image](https://github.com/aevsria/aevsria/blob/0e4e967e52a533e0af3cc6837499a924f7f9eb29/Untitled53_20260201201731.jpeg)
+![image](https://github.com/aevsria/aevsria/blob/368e2d3ea28ba98212621a6c5e588638efaae500/Untitled53_20260201213414.jpeg)
