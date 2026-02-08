@@ -13,7 +13,3 @@
 
 ![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Indie+Flower&duration=4300&pause=1&color=6D488A&center=true&vCenter=true&multiline=true&repeat=false&width=435&height=125&lines=wifies%2C+ive+never+gotten+an+opportunity;to+say+this%2C+but%2C+thank+you+for+being+my+friend.;+.++.++.+;%E2%80%9C+anytime+dude+%3A%5D+%E2%80%9C)
 
-
-
-
-![image](https://github.com/aevsria/aevsria/blob/368e2d3ea28ba98212621a6c5e588638efaae500/Untitled53_20260201213414.jpeg)
