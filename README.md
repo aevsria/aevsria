@@ -13,7 +13,4 @@
 
 ![image](https://github.com/aevsria/aevsria/blob/d4b208c4e9c88ec1cd8ad3ea344006c74787cded/IMG_1363.png)
 
-
-hi sourpatchkids duo
-
 cr : calsoiyum_ on x
