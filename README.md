@@ -1,5 +1,5 @@
                                
-                               <div align="center">![](https://komarev.com/ghpvc/?username=aevsria&label= Ი𐑼 &color=666590&style=plastic)                      
+                               <div align="center">![](https://komarev.com/ghpvc/?username=aevsria&label= Ი𐑼 &color=000000&style=plastic)                      
 
 
 ![image](https://github.com/aevsria/aevsria/blob/251af0246de814af3e6a017fda668d602814d2d8/IMG_1480.jpeg)
