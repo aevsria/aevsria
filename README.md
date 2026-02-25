@@ -1,5 +1,8 @@
                                
-                               <div align="center">![](https://komarev.com/ghpvc/?username=aevsria&label= Ი𐑼 &color=000000&style=plastic)                      
+                               <div align="center">![](https://komarev.com/ghpvc/?username=aevsria&label= Ი𐑼 &color=000000&style=plastic)        
+                               
+![image](https://github.com/aevsria/aevsria/blob/ebf1bd376933e089ca7272ad888ffe032accbdfd/IMG_1494.gif)![image](https://github.com/aevsria/aevsria/blob/03b10f92779c2dbec6b78e3c9da154aa17dec333/IMG_1490.gif)![image](https://github.com/aevsria/aevsria/blob/4a6249c80546b2cd6ff0a4b8bc6977ebcd079ca3/IMG_1493.gif)![image](https://github.com/aevsria/aevsria/blob/03b10f92779c2dbec6b78e3c9da154aa17dec333/IMG_1492.gif)![image](https://github.com/aevsria/aevsria/blob/03b10f92779c2dbec6b78e3c9da154aa17dec333/IMG_1491.gif)
+
 
 
 ![image](https://github.com/aevsria/aevsria/blob/251af0246de814af3e6a017fda668d602814d2d8/IMG_1480.jpeg)
