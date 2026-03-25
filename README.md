@@ -1,7 +1,13 @@
                                
-                               <div align="center">![](https://komarev.com/ghpvc/?username=aevsria&label= Ი𐑼 &color=d3b599&style=plastic)        
+                               <div align="center">![](https://komarev.com/ghpvc/?username=aevsria&label= Ი𐑼 &color=323435&style=plastic)        
                                
 ![image](https://github.com/aevsria/aevsria/blob/ebf1bd376933e089ca7272ad888ffe032accbdfd/IMG_1494.gif)![image](https://github.com/aevsria/aevsria/blob/03b10f92779c2dbec6b78e3c9da154aa17dec333/IMG_1490.gif)![image](https://github.com/aevsria/aevsria/blob/4a6249c80546b2cd6ff0a4b8bc6977ebcd079ca3/IMG_1493.gif)![image](https://github.com/aevsria/aevsria/blob/03b10f92779c2dbec6b78e3c9da154aa17dec333/IMG_1492.gif)![image](https://github.com/aevsria/aevsria/blob/03b10f92779c2dbec6b78e3c9da154aa17dec333/IMG_1491.gif)
+
+
+![image](https://github.com/aevsria/aevsria/blob/06218f7400c95539597a4875aa840727fa5091bb/Untitled70_20260324215700.png)
+
+  
+[ata](https://aevsria.atabook.org/?page=1) [straw](https://katefies.straw.page) [prns](https://en.pronouns.page/@aevsria)
 
 
 <p align="center">
@@ -9,8 +15,6 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=g0ajh2dlv0n03s8ei2qrox2vi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=true">
   </a>
 </p>
-  
-[ata](https://aevsria.atabook.org/?page=1) [straw](https://katefies.straw.page) [prns](https://en.pronouns.page/@aevsria)
 
 
 ![image](https://github.com/aevsria/aevsria/blob/64ca5164175bca400817195507a94a33857aabc2/IMG_1488.jpeg)
