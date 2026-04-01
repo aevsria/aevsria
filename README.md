@@ -17,7 +17,7 @@
 ###### $${\color{#885494}಄ \space ┆ \space kate \space , \space any \space nicknames⠀\space⠀✧⠀\space⠀interact \space freely \space ◞}$$
 
 
-###### $${\color{#61386B}⭑ \space ࿐ ࿔*:･ﾟ \space⠀c \space * \space h \space always \space encouraged \space ⌇}$$
+###### $${\color{#61386B}⭑ \space ࿐ ࿔*:･ﾟ \space⠀inconsistent \space style \space⠀︵⠀c \space * \space h \space always \space encouraged \space⠀⌇}$$
 
 
 ###### $${\color{#9879A3}◞◟　　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟}$$
