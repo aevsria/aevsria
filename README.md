@@ -14,7 +14,7 @@
 ###### ![image](https://github.com/aevsria/aevsria/blob/33908ba5b6ab5ce766171f6e2ec5c50787bc4697/IMG_1754.gif) [𝘢tabook](https://aevsria.atabook.org/?page=1)⠀⠀[𝘴trawpage](https://katefies.straw.page)⠀⠀[𝘱rns.𝘱age](https://en.pronouns.page/@aevsria) ![image](https://github.com/aevsria/aevsria/blob/c63f9b45e55ec4b95899cd126dfddf386a831fad/IMG_1751.gif)
 
 
-###### $${\color{#885494}಄ \space ┆ \space kate \space , \space any \space nicknames⠀\space⠀✧⠀\space⠀interact \space freely \space ◞}$$
+###### $${\color{#885494}಄ \space ┆ \space kate \space , \space any \space nicknames⠀\space⠀✧⠀\space⠀interact \space freely \space⠀੭}$$
 
 
 ###### $${\color{#61386B}⭑ \space ࿐ ࿔*:･ﾟ \space⠀inconsistent \space style \space⠀︵⠀c \space * \space h \space always \space encouraged \space⠀⌇}$$
