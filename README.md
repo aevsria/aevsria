@@ -8,7 +8,7 @@
 
 ![image](https://github.com/aevsria/aevsria/blob/57b19730fd67a7b8bb232c44101e955a3eb7b4ce/IMG_1750.gif)
 
-![Static Badge](https://img.shields.io/badge/⠀⊹⠀wifies⠀-⠀spyglass⠀-5B2D66)
+![Static Badge](https://img.shields.io/badge/⠀⊹⠀wifies⠀-⠀odyssey⠀-5B2D66)
 
   
 ###### ![image](https://github.com/aevsria/aevsria/blob/33908ba5b6ab5ce766171f6e2ec5c50787bc4697/IMG_1754.gif) [𝘢tabook](https://aevsria.atabook.org/?page=1)⠀⠀[𝘴trawpage](https://katefies.straw.page)⠀⠀[𝘱rns.𝘱age](https://en.pronouns.page/@aevsria) ![image](https://github.com/aevsria/aevsria/blob/c63f9b45e55ec4b95899cd126dfddf386a831fad/IMG_1751.gif)
