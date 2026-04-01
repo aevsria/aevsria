@@ -3,8 +3,24 @@
                                
 ![image](https://github.com/aevsria/aevsria/blob/ebf1bd376933e089ca7272ad888ffe032accbdfd/IMG_1494.gif)![image](https://github.com/aevsria/aevsria/blob/03b10f92779c2dbec6b78e3c9da154aa17dec333/IMG_1490.gif)![image](https://github.com/aevsria/aevsria/blob/4a6249c80546b2cd6ff0a4b8bc6977ebcd079ca3/IMG_1493.gif)![image](https://github.com/aevsria/aevsria/blob/03b10f92779c2dbec6b78e3c9da154aa17dec333/IMG_1492.gif)![image](https://github.com/aevsria/aevsria/blob/03b10f92779c2dbec6b78e3c9da154aa17dec333/IMG_1491.gif)
 
+
+#### $${\color{#93689C}·̩͙།† ͝ ︶ ͝ ⏝ ͝ ︶ ͝ †། ·̩͙}$$
+
+![image](https://github.com/aevsria/aevsria/blob/57b19730fd67a7b8bb232c44101e955a3eb7b4ce/IMG_1750.gif)
+
+![Static Badge](https://img.shields.io/badge/⠀wifies⠀-⠀spyglass⠀-5B2D66)
+
   
 ###### ༉‧₊゛  [𝘢tabook](https://aevsria.atabook.org/?page=1)⠀⠀[𝘴trawpage](https://katefies.straw.page)⠀⠀[𝘱rns.𝘱age](https://en.pronouns.page/@aevsria)⠀⠀⭑ ˚.
+
+
+###### $${\color{#885494}಄ \space ┆ \space kate \space , \space any \space nicknames⠀\space⠀✧⠀\space⠀interact \space freely \space ◞}$$
+
+
+###### $${\color{#61386B}⭑ \space ࿐ ࿔*:･ﾟ \space⠀c \space * \space h \space always \space encouraged \space ⌇}$$
+
+
+###### $${\color{#AF99B0}◞◟　　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟}$$
 
 
 <p align="center">
