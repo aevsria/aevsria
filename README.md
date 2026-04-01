@@ -23,6 +23,9 @@
 ###### $${\color{#9879A3}◞◟　　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟}$$
 
 
+![image](https://github.com/aevsria/aevsria/blob/7e7158e8ef3b5ec19ec5af98808d39780c65eebb/IMG_1752.gif)
+
+
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=g0ajh2dlv0n03s8ei2qrox2vi&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=g0ajh2dlv0n03s8ei2qrox2vi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=true">
