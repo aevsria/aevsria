@@ -20,7 +20,7 @@
 ###### $${\color{#61386B}⭑ \space ࿐ ࿔*:･ﾟ \space⠀c \space * \space h \space always \space encouraged \space ⌇}$$
 
 
-###### $${\color{#AF99B0}◞◟　　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟}$$
+###### $${\color{#9879A3}◞◟　　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟}$$
 
 
 <p align="center">
