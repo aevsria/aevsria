@@ -4,7 +4,7 @@
 ![image](https://github.com/aevsria/aevsria/blob/ebf1bd376933e089ca7272ad888ffe032accbdfd/IMG_1494.gif)![image](https://github.com/aevsria/aevsria/blob/03b10f92779c2dbec6b78e3c9da154aa17dec333/IMG_1490.gif)![image](https://github.com/aevsria/aevsria/blob/4a6249c80546b2cd6ff0a4b8bc6977ebcd079ca3/IMG_1493.gif)![image](https://github.com/aevsria/aevsria/blob/03b10f92779c2dbec6b78e3c9da154aa17dec333/IMG_1492.gif)![image](https://github.com/aevsria/aevsria/blob/03b10f92779c2dbec6b78e3c9da154aa17dec333/IMG_1491.gif)
 
   
-###### ༉‧₊゛  [atabook](https://aevsria.atabook.org/?page=1)⠀⠀[strawpage](https://katefies.straw.page)⠀⠀[prns.page](https://en.pronouns.page/@aevsria)⠀⠀⭑ ˚.
+###### ༉‧₊゛  [𝘢tabook](https://aevsria.atabook.org/?page=1)⠀⠀[𝘴trawpage](https://katefies.straw.page)⠀⠀[𝘱rns.𝘱age](https://en.pronouns.page/@aevsria)⠀⠀⭑ ˚.
 
 
 <p align="center">
