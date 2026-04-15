@@ -40,3 +40,9 @@
 <p align="center">
   <img src="https://github.com/aevsria/aevsria/blob/8057fc0e1601997e4a41dbebe811ad49432b30af/IMG_1903.gif" alt="Description">
 </p>
+
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=g0ajh2dlv0n03s8ei2qrox2vi&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=g0ajh2dlv0n03s8ei2qrox2vi&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=71a6ba&bar_color_cover=false">
+  </a>
+</p>
