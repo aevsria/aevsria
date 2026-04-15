@@ -22,13 +22,13 @@
 </p>
 
 
-###### <div align="center"> $${\color{#7f9697}಄ \space ┆ \space kate \space , \space any \space nicknames⠀\space⠀✧⠀\space⠀interact \space freely \space⠀੭}$$
+##### <div align="center"> $${\color{#7f9697}಄ \space ┆ \space kate \space , \space any \space nicknames⠀\space⠀✧⠀\space⠀interact \space freely \space⠀੭}$$
 
 
-###### <div align="center"> $${\color{#6ca7b5}⭑ \space ࿐ ࿔*:･ﾟ \space⠀inconsistent \space style \space⠀︵⠀c \space * \space h \space always \space encouraged \space⠀⌇}$$
+##### <div align="center"> $${\color{#6ca7b5}⭑ \space ࿐ ࿔*:･ﾟ \space⠀inconsistent \space style \space⠀︵⠀c \space * \space h \space always \space encouraged \space⠀⌇}$$
 
 
-###### <div align="center"> $${\color{#456372}◞◟　　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟}$$
+##### <div align="center"> $${\color{#456372}◞◟　　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟}$$
 
 
 [![Alt text](https://github.com/aevsria/aevsria/blob/b8f0856a681afe0e95b6bff7c7fae421ff6546de/Untitled72_20260414203204-removebg-preview.png)](https://github.com/miangimi)
