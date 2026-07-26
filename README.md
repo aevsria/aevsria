@@ -9,7 +9,7 @@
 </p>
 
 
-###### <div align="center"> ![image](https://github.com/aevsria/aevsria/blob/b174c4ce9cdb1e0e4fd2f7d211efe1cd05a4b355/IMG_1898.gif) [𝘢tabook](https://aevsria.atabook.org/?page=1)⠀⠀[𝘴trawpage](https://katefies.straw.page)⠀⠀[𝘱rns.𝘱age](https://en.pronouns.page/@aevsria) ![image](https://github.com/aevsria/aevsria/blob/8057fc0e1601997e4a41dbebe811ad49432b30af/IMG_1901.gif)
+###### <div align="center"> ![image](https://github.com/aevsria/aevsria/blob/b174c4ce9cdb1e0e4fd2f7d211efe1cd05a4b355/IMG_1898.gif) [𝘢tabook](https://aevsria.atabook.org/?page=1)⠀⠀[𝘴trawpage](https://vitalasyy.straw.page)⠀⠀[𝘱rns.𝘱age](https://en.pronouns.page/@aevsria) ![image](https://github.com/aevsria/aevsria/blob/8057fc0e1601997e4a41dbebe811ad49432b30af/IMG_1901.gif)
 
 
 <p align="center">
